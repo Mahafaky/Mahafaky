@@ -6,7 +6,7 @@
 - 📫 How to reach me: c.mahafaky@euridis.net
 
 <br><br>
-More about SAYNA : https://www.sayna.io/
+More about SAYNA : https://www.sayna.io/ <br>
 More about me : https://www.linkedin.com/in/christina-mahafaky/
 <br><br>
 
