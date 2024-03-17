@@ -5,7 +5,7 @@
 - 👯 I’m looking to collaborate on many projects to see all the methodology development around the world
 - 📫 How to reach me: c.mahafaky@euridis.net
 
-<br><br>
+<br>
 More about SAYNA : https://www.sayna.io/ <br>
 More about me : https://www.linkedin.com/in/christina-mahafaky/
 <br><br>
